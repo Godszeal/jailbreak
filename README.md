@@ -1,1 +1,2 @@
-# jailbreak
+# jailbreaks
+ENJOY JAILBREAK FOR FUN, STAR AND FORK THE REPO
